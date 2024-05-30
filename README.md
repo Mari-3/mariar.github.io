@@ -32,21 +32,20 @@ Senior Account Analyst<br>
 UPS<br>
 Jun 2021 - Mar 2023<br>
 Analytical thinking |<br>
-Research & Data analysis |<br>
-Delivering solutions |<br>
+Research & Logistics data analysis |<br>
+Delivering solutions to clients|<br>
 Contributing with Marketing & Newsletter internal distribution |<br>
-Sr Healthcare account analyst in the US Market |<br>
+Working together with C-level executives and managers for troubleshooting and achieving customer success |<br>
 Problem-Solving |<br>
 Focus on the US Market |<br>
-Business to Customer (B2C) |<br>
-Business to Business (B2B) |<br>
+Business to Customer (B2C) & Business to Business (B2B) |<br>
 <br>
 <br>
-Communication Trainee<br>
-CINDE - Experts in FDI<br>
+Trainee<br>
+CINDE - Experts in Foreign Direct Investment (FDI) <br>
 Dec 2020 - Jul 2021<br>
 Strategic communication development |<br>
-Entrepreneurship & Market Analysis |<br>
+Entrepreneurship encourage & Labor Market Analysis |<br>
 Leadership & Teamwork |<br>
 Research trends for professional opportunities to empower and excel business opportunities |<br>
 Apprenticeship program |<br>
@@ -59,7 +58,7 @@ Experience managing a varied workload |<br>
 Working autonomously and as a part of a team |<br>
 Excellent attention to detail |<br>
 Strong organizational skills |<br>
-Contributing with another departments to provide services that impact approx 6K clients |<br>
+Contributing with other departments to provide services that impact approx 6K clients |<br>
 Data entry, Statistics & KPI support |<br>
 Support to the International students program |<br>
 Social work volunteerism |<br>
@@ -74,7 +73,7 @@ Development of effective control procedures that impact around 80K users |<br>
 
 <h2>Education</h2>
 
-Bachelor's Degree Information literacy & ICT
-Universidad Estatal a Distancia de Costa Rica
-Jan 2014 - Nov 2018
+Bachelor's Degree Information literacy & ICT<br>
+Universidad Estatal a Distancia de Costa Rica<br>
+Jan 2014 - Nov 2018<br>
 Management | Research | ICT
